@@ -1,1 +1,1 @@
-My name is Samara
+My email is samaraf5824@hstat.org and I go to tele
